@@ -168,6 +168,9 @@ Negative 😞
 
 **Khushi Sharma**
 
+- GitHub: https://github.com/KhushiSharma006
+- LinkedIn: *(Add your LinkedIn profile here)*
+
 ---
 
 ## ⭐ If you found this project useful
